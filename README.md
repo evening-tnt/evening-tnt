@@ -1,4 +1,4 @@
-## Hi there 👋
+## wip... i have no idea what im doing...
 
 <!--
 **evening-tnt/evening-tnt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
