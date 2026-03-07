@@ -1,8 +1,13 @@
-## wip... i have no idea what im doing...
+## 🪼 ⋆˚꩜｡⋆ hi... what up
+
+i'm tnt or kaius and i don't know how to do fancy things in github!
+maybe some day... i do internet stuff 🦋🌈
+
+
+
 
 <!--
 **evening-tnt/evening-tnt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
