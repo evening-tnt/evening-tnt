@@ -6,7 +6,7 @@
 
 
 
-<img width="105" height="100" alt="IMG_9928" src="https://github.com/user-attachments/assets/4c1cc148-dbe1-4807-946f-c9043dfc33f9" /> ! confused and on the internet ・ if you play star stable online or animal jam (play wild) pls interact!! i need friends.........
+<img width="105" height="100" alt="IMG_9928" src="https://github.com/user-attachments/assets/4c1cc148-dbe1-4807-946f-c9043dfc33f9" /> ***・➤ confused and on the internet!*** 🦋🌈
 
 
 
