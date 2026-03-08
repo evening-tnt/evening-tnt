@@ -1,4 +1,4 @@
-## 🪼 ⋆˚꩜｡⋆ hi... what up
+## <img width="100" height="50" alt="IMG_9926" src="https://github.com/user-attachments/assets/b106f94a-82e6-433b-9e5d-232a3e67c102" /> ⋆˚꩜｡⋆ "Are we going to be okay?" "I wouldn't lie to you."
 
 i'm tnt or kaius and i don't know how to do fancy things in github!
 maybe some day... i do internet stuff 🦋🌈
