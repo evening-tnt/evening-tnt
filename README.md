@@ -1,21 +1,15 @@
+
 ## <img width="100" height="50" alt="IMG_9926" src="https://github.com/user-attachments/assets/b106f94a-82e6-433b-9e5d-232a3e67c102" /> ⋆˚꩜｡⋆ "Are we going to be okay?" "I wouldn't lie to you."
-
-i'm tnt or kaius and i don't know how to do fancy things in github!
-maybe some day... i do internet stuff 🦋🌈
+<img width="650" height="70" alt="IMG_9929" src="https://github.com/user-attachments/assets/7cd067cb-62d2-481c-98b7-b51a40c254c0" />
 
 
 
 
-<!--
-**evening-tnt/evening-tnt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="105" height="100" alt="IMG_9928" src="https://github.com/user-attachments/assets/4c1cc148-dbe1-4807-946f-c9043dfc33f9" /> ! confused and on the internet ・ if you play star stable online or animal jam (play wild) pls interact!! i need friends.........
+
+
+
+
+
+
